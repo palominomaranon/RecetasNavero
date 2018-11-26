@@ -1,0 +1,4 @@
+patatas
+tomate
+tabasco
+pimiento
