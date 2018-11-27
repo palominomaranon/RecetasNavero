@@ -7,3 +7,6 @@ Ingredientes para 10 personas:
 250 g. de garrofó (variedad de alubia que se utiliza para hacer la típica paella valenciana), 
 100 g. de pimiento (optativo), 2 docenas de caracoles (optativo), 
 3 dl. de aceite, unas ...
+
+El comentario que faltaba 
+pruega
